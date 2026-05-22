@@ -4,5 +4,5 @@
 <p align="center">
 on the spectrum (obviously) + other bs
 <p align="center">
-dni if u sexualize the Lucky Star cast please! 
+dni if u sexualize the Lucky Star + ect please! 
 <p align="center">
