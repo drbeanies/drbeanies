@@ -1,6 +1,6 @@
 </p>
 <p align="center">
-<img src= https://i.postimg.cc/Bn3G8k2Y/adajima.webp >
+<img src= https://i.postimg.cc/kGfY11wB/IMG-5133.gif >
 <p align="center">
 read links 4 more info 
 <p align="center">
